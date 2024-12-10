@@ -1,1 +1,1 @@
-<img src="https://file.garden/ZwCpeSoEK1ZwoQvU/kk%20silder.gif">
+<img src="https://file.garden/ZwCpeSoEK1ZwoQvU/kk%20silder.gif" align="center">

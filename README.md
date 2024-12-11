@@ -18,3 +18,20 @@
     <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/fuc">
 </p>
 
+<div>
+  <img align="left" width="30%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/forg.png">
+</div>
+
+  ﹒⤿  links 📗  ୯ 
+
+[୬ ◟strawpage﹒ ](https://morscod3.straw.page)
+
+[﹒carrd ‹໒](https://morscod3.carrd.co)
+
+[୬ ◟atabook﹒ ](https://morscod3.atabook.org)
+
+[﹒dni ‹໒](https://morscod3.carrd.co/#dni)
+
+[୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morscod3)
+
+[﹒color my tree ‹໒](https://colormytree.me/2024/01JEEJ4EYAMDQ3RCHDP0RD7SF1)

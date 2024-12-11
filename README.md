@@ -24,14 +24,14 @@
 
   ﹒⤿  links 📗  ୯ 
 
-[୬ ◟strawpage﹒ ](https://morscod3.straw.page)
+[୬ ◟strawpage﹒ ](https://morscod3.straw.page) a magical place where you can send me drawings and etc!
 
-[﹒carrd ‹໒](https://morscod3.carrd.co)
+[﹒carrd ‹໒](https://morscod3.carrd.co) learn more about me including some fun facts and colorful stamps!!
 
-[୬ ◟atabook﹒ ](https://morscod3.atabook.org)
+[୬ ◟atabook﹒ ](https://morscod3.atabook.org) a place to ask me questions or just send me messages!!
 
-[﹒dni ‹໒](https://morscod3.carrd.co/#dni)
+[﹒dni ‹໒](https://morscod3.carrd.co/#dni) a guide on who should or should not interact with me!
 
-[୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morscod3)
+[୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morscod3) my pronouns, preferred names, etc
 
-[﹒color my tree ‹໒](https://colormytree.me/2024/01JEEJ4EYAMDQ3RCHDP0RD7SF1)
+[﹒color my tree ‹໒](https://colormytree.me/2024/01JEEJ4EYAMDQ3RCHDP0RD7SF1) send me a jolly christmas message!

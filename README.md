@@ -1,6 +1,6 @@
 
 <p align="center">
-    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/OMFG%20TOTORO_scaled_2x_minified.gif">
+    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/AGGGGGHHHHH">
 </p>
 
 <div>

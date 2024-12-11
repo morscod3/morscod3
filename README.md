@@ -1,6 +1,6 @@
 
 <div>
-  <img align="right" width="20%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/toto%20pagedoll.png">
+  <img align="right" width="25%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/toto%20pagedoll.png">
 </div>
 
 

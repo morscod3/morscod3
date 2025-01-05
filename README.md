@@ -33,5 +33,3 @@
 [﹒dni ‹໒](https://morscod3.carrd.co/#dni) a guide on who should or should not interact with me!
 
 [୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morscod3) my pronouns, preferred names, etc
-
-[﹒color my tree ‹໒](https://colormytree.me/2024/01JEEJ4EYAMDQ3RCHDP0RD7SF1) send me a jolly christmas message!
